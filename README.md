@@ -8,7 +8,7 @@ Nie ma pewności, czy wójek Wacek jest jej autorem, czy była to modlitwa, któ
 
 *Panie i Boże mój,  
 sługa Twój wstaje.  
-Dziękuję Ci za noc szczęśliwa,  
+Dziękuję Ci za noc szczęśliwą,  
 a proszę o dzień szczęśliwy.  
 Wszystko co w tym dniu będę robił, mówił,  
 wszystko dla Ciebie.  
