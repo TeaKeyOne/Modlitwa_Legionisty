@@ -1,5 +1,5 @@
 # Modlitwa Legionisty
-Modlitwa rodzinna przekazywana z pokolenia na pokolenie. Wójek mojej babci Wacław Szproch służący w legionach i walczący w Bitwie Warszawskiej nauczył ją swoją siostrę, a moją pra-pra babcię, ona nauczyła jej moją babcię. Babcia nauczyła mnie.
+Modlitwa rodzinna przekazywana z pokolenia na pokolenie. Wójek mojej babci Wacław Szproch służący w legionach i walczący w Bitwie Warszawskiej nauczył ją swoją siostrę, a moją pra-pra babcię, która nauczyła jej moją babcię. Babcia nauczyła mnie.
 
 Nie ma pewności, czy wójek Wacek jest jej autorem, czy była to modlitwa, której się nauczył służąc w legionach. Jest to krótka żołnierska modlitwa w wersji porannej i wieczornej.
 
